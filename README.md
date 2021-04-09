@@ -1,0 +1,2 @@
+# Bitirmee
+ Uyku_Evrelemee
